@@ -1,7 +1,4 @@
 
-Step 3: Explain them
-
-Open:
 
 Training → README.md → KM4 industrial content
 
