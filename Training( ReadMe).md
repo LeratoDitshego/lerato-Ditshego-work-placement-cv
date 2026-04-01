@@ -2,7 +2,7 @@
 
 Training → README.md → KM4 industrial content
 
-Paste this:
+
 
 Additional Training Evidence
 
