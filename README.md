@@ -1,3 +1,4 @@
+[Lerato Ditshego.pdf](https://github.com/user-attachments/files/26446265/Lerato.Ditshego.pdf)
 
 Lerato Ditshego: Work Placement Portfolio
 
